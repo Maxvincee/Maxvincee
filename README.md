@@ -9,6 +9,7 @@
   - 💬 Ask me about ...
   - 📫 How to reach me :
     - By Mail : maxvince87@gmail.com
-    - By Instagram : @maxbears17
-    - By Discord : @paxvince
+    - By Linkedln 
+    - By Instagram 
+    - By Discord
   - ⚡ Fun fact : ...
